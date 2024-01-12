@@ -4,4 +4,4 @@ My name is Michelle, I am a masters candidate at LSE.
 - 📕 I am enjoying my learning process and trying to be as focused as possible
 - 🎯 I have 5 years of experience working in economic analysis with a gender perspective. 
 - 📍 I am Mexican but currently based on London
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/her they/them
