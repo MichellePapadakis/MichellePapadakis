@@ -1,5 +1,5 @@
 ### Hi there 👋
-My name is Michelle, I am a masters candidate at LSE.
+My name is Michelle.
 - 🔭 I’m working on my MSc in Applied Social Data Science
 - 📕 I am enjoying my learning process and trying to be as focused as possible
 - 🎯 I have 5 years of experience working in economic analysis with a gender perspective. 
